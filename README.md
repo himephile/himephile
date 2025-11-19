@@ -1,4 +1,4 @@
- ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎ ‎‎ ‎ ‎    ![](https://media1.tenor.com/m/dwhZn-sufZwAAAAC/maya-higuchi-higuchi-maya.gif)
+ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎ ‎‎ ‎ ‎    ![](https://media1.tenor.com/m/W7AoTYokGsUAAAAC/sirius-symboli-sirius.gif)
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
