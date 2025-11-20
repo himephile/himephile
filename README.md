@@ -1,7 +1,7 @@
 
 
 ‎<p align="center">
-    oh i love my ugly girl ( ´ ω ` )
+    oh ‎ ‎ i‎ ‎  love‎ ‎  my ‎ ‎ ugly‎ ‎  girl ‎ ‎ ( ´ ω ` )
 </p>
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
