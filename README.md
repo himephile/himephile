@@ -14,4 +14,8 @@
 [rentry](https://rentry.co/girlyberry) ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [ata](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎[ext](https://rentry.co/interbind)
 
 </div>
-‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=nyocanada&color=8A1124&style=plastic&label=victims&abbreviated=true)
+
+</div>‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
