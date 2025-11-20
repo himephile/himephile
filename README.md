@@ -27,8 +27,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3136jsqyxmeaeemduqr435mmswym&cover_image=false&theme=default&show_offline=false&background_color=000b11&interchange=true&profanity=false&bar_color_cover=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
 
-</div>‎ ‎ ‎‎
 
 
+‎<p align="center">
+*would* you like it if I told you i **loved** you? (´ ∀ ` *)
+</p>
 
-</div>‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎
