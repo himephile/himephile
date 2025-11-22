@@ -16,7 +16,7 @@
 </div>
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=nyocanada&color=8A1124&style=plastic&label=VICTIMS)
+![](https://komarev.com/ghpvc/?username=nyocanada&color=6756B6&style=plastic&label=VICTIMS)
 
 </div>‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎
 
