@@ -1,12 +1,12 @@
 
 
 ‎<p align="center">
- oh ‎ ‎ i‎ ‎  **love**‎ ‎  my ‎ ‎ *ugly*‎ ‎  girl ‎ ‎ ( ´ ω ` )
+ ‎ ‎ ( ´ ω ` )
 </p>
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="300" src="https://media1.tenor.com/m/DbyqZPPKcjgAAAAC/%E3%82%A6%E3%83%9E%E5%A8%98-uma-musume.gif">
+    <img width="300" src="https://media1.tenor.com/m/CtSuD3oe8MYAAAAC/gold-ship-uma-musume.gif">
 </p>
 
 <div align="center">
