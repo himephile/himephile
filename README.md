@@ -1,12 +1,8 @@
 
-
-‎<p align="center">
- ‎ ‎ 
-</p>
-‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
+ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="300" src="https://files.catbox.moe/d26kg1.png">
+    <img width="400" src="https://files.catbox.moe/d26kg1.png">
 </p>
 
 <div align="center">
