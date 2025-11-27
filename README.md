@@ -12,7 +12,7 @@ shes so wild , so animal !  (=`ω´=)
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="400" src="https://files.catbox.moe/d26kg1.png">
+    <img width="400" src="https://files.catbox.moe/8w0g0e.png">
 </p>
 
 <div align="center">
