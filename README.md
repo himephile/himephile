@@ -6,12 +6,11 @@
 </div>
 <div align="center">
 
-older *sister* **?** U・ﻌ・U‎ ‎
 
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="400" src="https://files.catbox.moe/x9rnvq.png">
+    <img width="400" src="https://files.catbox.moe/4entzz.png">
 </p>
 
 <div align="center">
