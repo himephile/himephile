@@ -1,10 +1,7 @@
 </div>
 <div align="center">
-
-
+untainted by complacent lives undone
 </div>‎ ‎ ‎‎ 
-</div>
-<div align="center">
 
 
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
