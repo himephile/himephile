@@ -1,6 +1,6 @@
 </div>
 <div align="center">
-have we always been this way?
+toxic yuri nuke
 </div>‎ ‎ ‎‎ 
 
 
