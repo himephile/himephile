@@ -12,7 +12,7 @@ toxic yuri nuke , angels in my garden
 
 <div align="center">
 
-[**r**entry](https://rentry.co/nyanachi) ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [**a**ta](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎   [**i**nterests](https://rentry.co/ideska)
+‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [**a**ta](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎  
 
 </div>
 <div align="center">
