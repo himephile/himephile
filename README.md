@@ -1,6 +1,6 @@
 </div>
 <div align="center">
-untainted by complacent lives undone
+have we always been this way?
 </div>‎ ‎ ‎‎ 
 
 
